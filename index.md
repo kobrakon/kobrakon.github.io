@@ -6,8 +6,8 @@ yo, my name is Zach, though most know me as Kobrakon, and I am a Computer Hardwa
 
 ### links and contacts
 
-Email: zacharyloganbraden1@gmail.com
-YouTube: https://www.youtube.com/channel/UCWnTNUsGKsh-8dUiCMSqFtQ
-Instagram: @kobrakon
-SPT Hub: https://hub.sp-tarkov.com/user/7008-kobrakon/
-Discord: Kobrakon#4421
+- Email: zacharyloganbraden1@gmail.com
+- YouTube: https://www.youtube.com/channel/UCWnTNUsGKsh-8dUiCMSqFtQ
+- Instagram: @kobrakon
+- SPT Hub: https://hub.sp-tarkov.com/user/7008-kobrakon/
+- Discord: Kobrakon#4421
