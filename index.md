@@ -8,7 +8,7 @@ Along with programming, I also do work relating to modeling, animating, and crea
 
 ### links and contacts
 
-- Email: zacharyloganbraden1@gmail.com
+- Email: work.zlbraden@gmail.com
 - YouTube: https://www.youtube.com/channel/UCWnTNUsGKsh-8dUiCMSqFtQ
 - Instagram: @kobrakon
 - SPT Hub: https://hub.sp-tarkov.com/user/7008-kobrakon/
